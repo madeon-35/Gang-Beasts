@@ -221,4 +221,4 @@ Gang Beasts is available as a complete free version with all features and update
 Don’t miss out on the fun! Download Gang Beasts now and dive into the hilarious world of jelly fighters.
 
 ---
-**Last updated:** 2026-10-29 14:04:07 UTC
+**Last updated:** 2026-10-29 20:09:14 UTC
